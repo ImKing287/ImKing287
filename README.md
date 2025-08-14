@@ -1,6 +1,6 @@
 # 👋 Hey there, I'm R¥b༒
 
-**Pronouns:** he/him 🇮🇹  
+**Pronouns:** he/him  
 **Location:** Italy
 
 ---
